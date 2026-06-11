@@ -23,7 +23,7 @@ PLEASE do not interact with me if you are:
 - Racist, Homophobic, Islamophobic, Misogynistic, Sexists, Proshippers, Darkshippers, Abusers, Ragebaiters, Trollers, Roreplayers, AI "artists", Drama Queens.
 
 <p align="center">
- ‧₊˚♪ 𝄞₊˚⊹ִֶָ𓂃 ࣪˖ ִֶָ:🪼་༘࿐.𑣲⋆
+༻*ੈ✩‧₊˚🪼ྀི♪⋆.*ੈ.⋆༺
 
 <p align="center">
  Some things can make my day, so don't think I'd underestimate even a greeting!
