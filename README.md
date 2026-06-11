@@ -36,3 +36,6 @@ made⠀by
 for⠀NorthernShine
 </p>
 
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=NorthernShine&color=c18ccf&style=plastic&label=★" />
+</p>
