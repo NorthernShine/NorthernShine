@@ -30,8 +30,9 @@
 
 
 
-
+<p align="center">
 made⠀by
   <a href="https://github.com/AshesOfHerHalo">@ashesofherhalo</a>
 for⠀NorthernShine
+</p>
 
