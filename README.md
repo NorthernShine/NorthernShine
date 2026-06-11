@@ -1,7 +1,8 @@
 <p align="center">
  <img width="800" height="400" alt="Senza titolo 5_20260611145144" src="https://github.com/user-attachments/assets/ed36cd2e-b0f7-468d-ac04-665a276298ea" />
 
-Hello! I'm Aurora, I'm currently 14 years old, my birthday is on January 2nd
+<p align="center">
+ Hello! I'm Aurora, I'm currently 14 years old, my birthday is on January 2nd
 I've been training for snowboarding for 4 years now, and I hope to become an actress in the future. 
 I'm friendly, so if you want come and meet me, I swear I'm sweet :D
 
@@ -11,7 +12,7 @@ I'm friendly, so if you want come and meet me, I swear I'm sweet :D
 <img width="591" height="221" alt="Senza titolo 6_20260611151213" src="https://github.com/user-attachments/assets/cd110d51-22a2-42d7-9f38-1070eea98b6a" />
 
 
-
+<p align="center">
 Please respect my comfort, some simple things can make a person nervous or just out of place,,
 Please don't copy my skins, I really put my heart into it because I enjoy making my skins, but this doesn't mean that you too have to have fun with my skins ;-; 
 Don't ask me to choose sides, I'm not interested in choosing a person who will later turn other people against me because of my choice.
@@ -21,14 +22,17 @@ If you want to make me one of your friends I'm happy, but really, don't waste my
 PLEASE do not interact with me if you are:
 - Racist, Homophobic, Islamophobic, Misogynistic, Sexists, Proshippers, Darkshippers, Abusers, Ragebaiters, Trollers, Roreplayers, AI "artists", Drama Queens.
 
-‧₊˚♪ 𝄞₊˚⊹ִֶָ𓂃 ࣪˖ ִֶָ:🪼་༘࿐.𑣲⋆
+<p align="center">
+ ‧₊˚♪ 𝄞₊˚⊹ִֶָ𓂃 ࣪˖ ִֶָ:🪼་༘࿐.𑣲⋆
 
-Some things can make my day, so don't think I'd underestimate even a greeting!
+<p align="center">
+ Some things can make my day, so don't think I'd underestimate even a greeting!
 I like it when a person opens up, it's just that it's a little more difficult for me to open up to others (⁠ب⁠_⁠ب⁠)
 Even sitting with me makes me happy, because it makes me think that you like me, that we are actually friends :D It makes me feel kind of good, It's just that sometimes I want to be alone to think a bit, so if I move it's not because of your presence! In fact, I would be happy if you talked to me ^^
 People who ask me for inspo or ideas are just waiting to be married! Thanks for asking, I love it! :DDD
 
-*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚🎧ྀི♪⋆.✮
+<p align="center">
+ *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚🎧ྀི♪⋆.✮
 
 if you are in one of these fandoms, PLEASE INTERACT WITH ME NOW. 
 𑣲⋆ Undertale
@@ -50,7 +54,8 @@ if you are in one of these fandoms, PLEASE INTERACT WITH ME NOW.
 𑣲⋆ Hello Kitty
 𑣲⋆ if you just know Mr Beast
 
-Thank you for visiting Aurora's GitHub <3
+<p align="center">
+ Thank you for visiting Aurora's GitHub <3
 
 <p align="center">
 made⠀with the help of
