@@ -21,7 +21,7 @@ If you want to make me one of your friends I'm happy, but really, don't waste my
 PLEASE do not interact with me if you are:
 - Racist, Homophobic, Islamophobic, Misogynistic, Sexists, Proshippers, Darkshippers, Abusers, Ragebaiters, Trollers, Roreplayers, AI "artists", Drama Queens.
 
-‧₊˚♪ 𝄞₊˚⊹ִֶָ𓂃 ࣪˖ ִֶָ:jellyfish:་༘࿐.𑣲⋆
+‧₊˚♪ 𝄞₊˚⊹ִֶָ𓂃 ࣪˖ ִֶָ:🪼་༘࿐.𑣲⋆
 
 Some things can make my day, so don't think I'd underestimate even a greeting!
 I like it when a person opens up, it's just that it's a little more difficult for me to open up to others (⁠ب⁠_⁠ب⁠)
