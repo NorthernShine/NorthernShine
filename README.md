@@ -21,23 +21,40 @@ If you want to make me one of your friends I'm happy, but really, don't waste my
 PLEASE do not interact with me if you are:
 - Racist, Homophobic, Islamophobic, Misogynistic, Sexists, Proshippers, Darkshippers, Abusers, Ragebaiters, Trollers, Roreplayers, AI "artists", Drama Queens.
 
+‧₊˚♪ 𝄞₊˚⊹ִֶָ𓂃 ࣪˖ ִֶָ:jellyfish:་༘࿐.𑣲⋆
 
+Some things can make my day, so don't think I'd underestimate even a greeting!
+I like it when a person opens up, it's just that it's a little more difficult for me to open up to others (⁠ب⁠_⁠ب⁠)
+Even sitting with me makes me happy, because it makes me think that you like me, that we are actually friends :D It makes me feel kind of good, It's just that sometimes I want to be alone to think a bit, so if I move it's not because of your presence! In fact, I would be happy if you talked to me ^^
+People who ask me for inspo or ideas are just waiting to be married! Thanks for asking, I love it! :DDD
 
+*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚🎧ྀི♪⋆.✮
 
+if you are in one of these fandoms, PLEASE INTERACT WITH ME NOW. 
+𑣲⋆ Undertale
+𑣲⋆ Deltaurine 
+𑣲⋆ Fnaf 
+𑣲⋆ Ena BBQ
+𑣲⋆ Digital Circus
+𑣲⋆ Mlp
+𑣲⋆ No i'm Not a Human 
+𑣲⋆ The House of Puso
+𑣲⋆ The Freak Circus
+𑣲⋆ The Owl House
+𑣲⋆ The Cuphead Show - Game
+𑣲⋆ Unikitty
+𑣲⋆ Poppy Playtime
+𑣲⋆ Star ButterFly vs The Forces of Evil
+𑣲⋆ Gumball
+𑣲⋆ Don't Hug Me im Scared
+𑣲⋆ Hello Kitty
+𑣲⋆ if you just know Mr Beast
 
-
-
-
-
-
-
-
-
+Thank you for visiting Aurora's GitHub <3
 
 <p align="center">
-made⠀by
+made⠀with the help of
   <a href="https://github.com/AshesOfHerHalo">@ashesofherhalo</a>
-for⠀NorthernShine
 </p>
 
 <p align="center">
