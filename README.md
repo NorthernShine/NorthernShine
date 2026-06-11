@@ -33,7 +33,8 @@ People who ask me for inspo or ideas are just waiting to be married! Thanks for 
 
 <p align="center">
  *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚🎧ྀི♪⋆.✮
-
+ 
+<p align="center">
 if you are in one of these fandoms, PLEASE INTERACT WITH ME NOW. 
 𑣲⋆ Undertale
 𑣲⋆ Deltaurine 
@@ -53,6 +54,7 @@ if you are in one of these fandoms, PLEASE INTERACT WITH ME NOW.
 𑣲⋆ Don't Hug Me im Scared
 𑣲⋆ Hello Kitty
 𑣲⋆ if you just know Mr Beast
+</p>
 
 <p align="center">
  Thank you for visiting Aurora's GitHub <3
