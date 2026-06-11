@@ -30,7 +30,6 @@
 
 
 
-
 <p align="center">
   $${\color{#c18ccf}made⠀by}$$
   <a href="https://github.com/AshesOfHerHalo">@ashesofherhalo</a>
