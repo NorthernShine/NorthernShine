@@ -13,7 +13,7 @@
 
 
 <p align="center">
-<img width="501" height="221" alt="Senza titolo 6_20260611151213" src="https://github.com/user-attachments/assets/cd110d51-22a2-42d7-9f38-1070eea98b6a" />
+<img width="571" height="221" alt="Senza titolo 6_20260611151213" src="https://github.com/user-attachments/assets/cd110d51-22a2-42d7-9f38-1070eea98b6a" />
 
 
 
