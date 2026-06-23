@@ -37,7 +37,7 @@ People who ask me for inspo or ideas are just waiting to be married! Thanks for 
 <p align="center">
 if you are in one of these fandoms, PLEASE INTERACT WITH ME NOW. 
 𑣲⋆ Undertale
-𑣲⋆ Deltaurine 
+𑣲⋆ Deltarune 
 𑣲⋆ Fnaf 
 𑣲⋆ Ena BBQ
 𑣲⋆ Digital Circus
