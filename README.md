@@ -3,6 +3,10 @@
 
  <p align="center">
 <img src="https://file.garden/akznOd94TlocQojJ/aurorapatpat.gif">
+  
+<p align="center">
+  <a href="https://github.com/AshesOfHerHalo">@AshesOfHerHalo</a>
+</p>
 
 <p align="center">
  Hello! I'm Aurora, I'm currently 14 years old, my birthday is on January 2nd
@@ -70,3 +74,10 @@ made⠀with the help of
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=NorthernShine&color=c18ccf&style=plastic&label=★" />
 </p>
+
+<p align="center">
+<img src="https://file.garden/akznOd94TlocQojJ/Dakota%20baloons.png"height="200">
+
+<p align="center">
+MY BEST FRIENDDD :D <a href="https://github.com/AshesOfHerHalo">@AshesOfHerHalo</a>
+  
