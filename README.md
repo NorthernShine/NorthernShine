@@ -21,9 +21,9 @@ I'm friendly, so if you want come and meet me, I swear I'm sweet :D
 
 <p align="center">
 Please respect my comfort, some simple things can make a person nervous or just out of place,,
-Please don't copy my skins, I really put my heart into it because I enjoy making my skins, but this doesn't mean that you too have to have fun with my skins ;-; 
+Please don't copy my skins, I really put my heart into it because I enjoy making my skins, but this doesn't mean that you can have fun with my skins too ;-; 
 Don't ask me to choose sides, I'm not interested in choosing a person who will later turn other people against me because of my choice.
-don't act strange, it makes me doubt the person I'm talking to.
+don't act strange, it makes me doubt to the person I'm talking to.
 I'm not interested in drama, please save my time as I'm not highly interested in saying useless things to a person who has a melted brain and likes drama so pushes the conversation just to keep it going.
 If you want to make me one of your friends I'm happy, but really, don't waste my time if you have to disappear afterwards or just not talk to me anymore!
 PLEASE do not interact with me if you are:
@@ -34,7 +34,7 @@ PLEASE do not interact with me if you are:
 
 <p align="center">
  Some things can make my day, so don't think I'd underestimate even a greeting!
-I like it when a person opens up, it's just that it's a little more difficult for me to open up to others (⁠ب⁠_⁠ب⁠)
+I like when a person opens up, it's just that it's a little more difficult for me to open up to others (⁠ب⁠_⁠ب⁠)
 Even sitting with me makes me happy, because it makes me think that you like me, that we are actually friends :D It makes me feel kind of good, It's just that sometimes I want to be alone to think a bit, so if I move it's not because of your presence! In fact, I would be happy if you talked to me ^^
 People who ask me for inspo or ideas are just waiting to be married! Thanks for asking, I love it! :DDD
 
