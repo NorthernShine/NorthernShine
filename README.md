@@ -27,7 +27,7 @@ don't act strange, it makes me doubt the person I'm talking to.
 I'm not interested in drama, please save my time as I'm not highly interested in saying useless things to a person who has a melted brain and likes drama so pushes the conversation just to keep it going.
 If you want to make me one of your friends I'm happy, but really, don't waste my time if you have to disappear afterwards or just not talk to me anymore!
 PLEASE do not interact with me if you are:
-- Racist, Homophobic, Islamophobic, Misogynistic, Sexists, Proshippers, Darkshippers, Abusers, Ragebaiters, Trollers, Roreplayers, AI "artists", Drama Queens.
+- Racist, Homophobic, Islamophobic, Misogynistic, Sexists, Proshippers, Darkshippers, Abusers, Ragebaiters, Trollers, Roleplayers, AI "artists", Drama Queens.
 
 <p align="center">
 ༻*ੈ✩‧₊˚🪼ྀི♪⋆.*ੈ.⋆༺
