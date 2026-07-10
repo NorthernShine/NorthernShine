@@ -1,6 +1,9 @@
 <p align="center">
  <img width="800" height="400" alt="Senza titolo 5_20260611145144" src="https://github.com/user-attachments/assets/ed36cd2e-b0f7-468d-ac04-665a276298ea" />
 
+ <p align="center">
+<img src="https://file.garden/akznOd94TlocQojJ/aurorapatpat.gif">
+
 <p align="center">
  Hello! I'm Aurora, I'm currently 14 years old, my birthday is on January 2nd
 I've been training for snowboarding for 4 years now, and I hope to become an actress in the future. 
