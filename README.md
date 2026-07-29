@@ -47,7 +47,6 @@ if you are in one of these fandoms, PLEASE INTERACT WITH ME NOW.
 𑣲⋆ Deltarune 
 𑣲⋆ Fnaf 
 𑣲⋆ Ena BBQ
-𑣲⋆ Digital Circus
 𑣲⋆ Mlp
 𑣲⋆ No i'm Not a Human 
 𑣲⋆ The House of Puso
