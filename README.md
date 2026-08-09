@@ -9,12 +9,9 @@
 </p>
 
 <p align="center">
- Hello! I'm Aurora, I'm currently 14 years old, my birthday is on January 2nd
+ Hello! I'm Aurora, I'm currently 14 years old, my birthday is on January 2nd - I usually prefer to interact with people my own age group. 
 I've been training for snowboarding for 4 years, and I love listening to music. 
-I'm friendly, so if you want come and meet me, I swear I'm sweet :D
-Before telling you more about me I wanted to tell you that I usually prefer not to interact with people under 11 and over 18 - 16 iwec. If I interact with you even if you are over 18 mean that you make me feel comfortable and prob I see you as part of my family :)
-
-
+I'm friendly, so if you want to know me better idm, I swear I'm sweet :D
 <p align="center">
 <img width="591" height="221" alt="Senza titolo 6_20260611151213" src="https://github.com/user-attachments/assets/cd110d51-22a2-42d7-9f38-1070eea98b6a" />
 
