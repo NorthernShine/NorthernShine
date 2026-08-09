@@ -10,9 +10,9 @@
 
 <p align="center">
  Hello! I'm Aurora, I'm currently 14 years old, my birthday is on January 2nd
-I've been training for snowboarding for 4 years now, and I hope to become an actress in the future. 
+I've been training for snowboarding for 4 years, and I love listening to music. 
 I'm friendly, so if you want come and meet me, I swear I'm sweet :D
-
+Before telling you more about me I wanted to tell you that I usually prefer not to interact with people under 11 and over 18 - 16 iwec. If I interact with you even if you are over 18 mean that you make me feel comfortable and prob I see you as part of my family :)
 
 
 <p align="center">
