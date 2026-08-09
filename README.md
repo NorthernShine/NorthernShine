@@ -16,24 +16,14 @@ I'm friendly, so if you want to know me better idm, I swear I'm sweet :D
 <img width="591" height="221" alt="Senza titolo 6_20260611151213" src="https://github.com/user-attachments/assets/cd110d51-22a2-42d7-9f38-1070eea98b6a" />
 
 
-<p align="center">
-Please respect my comfort, some simple things can make a person nervous or just out of place,,
-Please don't copy my skins, I really put my heart into it because I enjoy making my skins, but this doesn't mean that you can have fun with my skins too ;-; 
-Don't ask me to choose sides, I'm not interested in choosing a person who will later turn other people against me because of my choice.
-don't act strange, it makes me doubt to the person I'm talking to.
-I'm not interested in drama, please save my time as I'm not highly interested in saying useless things to a person who has a melted brain and likes drama so pushes the conversation just to keep it going.
-If you want to make me one of your friends I'm happy, but really, don't waste my time if you have to disappear afterwards or just not talk to me anymore!
-PLEASE do not interact with me if you are:
-- Racist, Homophobic, Islamophobic, Misogynistic, Sexists, Proshippers, Darkshippers, Abusers, Ragebaiters, Trollers, Roleplayers, AI "artists", Drama Queens.
-
+<p align="center"> 
+Please respect my comfort and personal boundaries. Do not copy my skins, involve me in conflicts, pressure me to take sides, or engage in unnecessary arguments or drama. I appreciate genuine friendships, so please do not waste my time if you have no intention of communicating consistently.
+DNI if you are: racist, homophobic, Islamophobic, Transphobic, misogynistic/sexist, proship/darkship, abusive, a troll/ragebaiter, roleplayer, AI “artist,” or someone who seeks unnecessary drama.
 <p align="center">
 ༻*ੈ✩‧₊˚🪼ྀི♪⋆.*ੈ.⋆༺
 
 <p align="center">
- Some things can make my day, so don't think I'd underestimate even a greeting!
-I like when a person opens up, it's just that it's a little more difficult for me to open up to others (⁠ب⁠_⁠ب⁠)
-Even sitting with me makes me happy, because it makes me think that you like me, that we are actually friends :D It makes me feel kind of good, It's just that sometimes I want to be alone to think a bit, so if I move it's not because of your presence! In fact, I would be happy if you talked to me ^^
-People who ask me for inspo or ideas are just waiting to be married! Thanks for asking, I love it! :DDD
+I appreciate even the smallest gestures, so i never underestimate a simple greeting. I enjoy when people open up to me, and I’m always happy to spend time together, whether we talk or simply sit together. If I ever need some time alone, please don’t take it personally, I could just move on without telling you anything.
 
 <p align="center">
  *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚🎧ྀི♪⋆.✮
@@ -44,15 +34,11 @@ if you are in one of these fandoms, PLEASE INTERACT WITH ME NOW.
 𑣲⋆ Deltarune 
 𑣲⋆ Fnaf 
 𑣲⋆ Ena BBQ
-𑣲⋆ Mlp
-𑣲⋆ No i'm Not a Human 
-𑣲⋆ The House of Puso
-𑣲⋆ The Freak Circus
+𑣲⋆ Mlp 
 𑣲⋆ The Owl House
 𑣲⋆ The Cuphead Show - Game
 𑣲⋆ Unikitty
 𑣲⋆ Poppy Playtime
-𑣲⋆ Star ButterFly vs The Forces of Evil
 𑣲⋆ Gumball
 𑣲⋆ Don't Hug Me im Scared
 𑣲⋆ Hello Kitty
