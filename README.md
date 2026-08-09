@@ -38,7 +38,7 @@ if you are in one of these fandoms, PLEASE INTERACT WITH ME NOW.
 𑣲⋆ The Owl House
 𑣲⋆ The Cuphead Show - Game
 𑣲⋆ Unikitty
-𑣲⋆ Poppy Playtime
+𑣲⋆ Poppy PlayTime
 𑣲⋆ Gumball
 𑣲⋆ Don't Hug Me im Scared
 𑣲⋆ Hello Kitty
