@@ -26,23 +26,10 @@ DNI if you are: racist, homophobic, Islamophobic, Transphobic, misogynistic/sexi
 I appreciate even the smallest gestures, so i never underestimate a simple greeting. I enjoy when people open up to me, and I’m always happy to spend time together, whether we talk or simply sit together. If I ever need some time alone, please don’t take it personally, I could just move on without telling you anything.
 
 <p align="center">
- *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚🎧ྀི♪⋆.✮
+ *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊ྀི♪⋆.✮
  
 <p align="center">
-if you are in one of these fandoms, PLEASE INTERACT WITH ME NOW. 
-𑣲⋆ Undertale
-𑣲⋆ Deltarune 
-𑣲⋆ Fnaf 
-𑣲⋆ Ena BBQ
-𑣲⋆ Mlp 
-𑣲⋆ The Owl House
-𑣲⋆ The Cuphead Show - Game
-𑣲⋆ Unikitty
-𑣲⋆ Poppy PlayTime
-𑣲⋆ Gumball
-𑣲⋆ Don't Hug Me im Scared
-𑣲⋆ Hello Kitty
-𑣲⋆ if you just know Mr Beast
+
 </p>
 
 <p align="center">
