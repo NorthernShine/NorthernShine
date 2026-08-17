@@ -35,11 +35,6 @@ I appreciate even the smallest gestures, so i never underestimate a simple greet
  Thank you for visiting Aurora's GitHub <3
 
 <p align="center">
-made⠀with the help of
-  <a href="https://github.com/AshesOfHerHalo">@ashesofherhalo</a>
-</p>
-
-<p align="center">
   <img src="https://komarev.com/ghpvc/?username=NorthernShine&color=c18ccf&style=plastic&label=★" />
 </p>
 
@@ -47,5 +42,5 @@ made⠀with the help of
 <img src="https://file.garden/akznOd94TlocQojJ/Dakota%20baloons.png"height="200">
 
 <p align="center">
-MY BEST FRIENDDD :D <a href="https://github.com/AshesOfHerHalo">@AshesOfHerHalo</a>
+made with help of my best friend :D <a href="https://github.com/AshesOfHerHalo">@AshesOfHerHalo</a>
   
