@@ -20,7 +20,7 @@ I'm friendly, so if you want to know me better idm, I swear I'm sweet :D
 Please respect my comfort and personal boundaries. Do not copy my skins, involve me in conflicts, pressure me to take sides, or engage in unnecessary arguments or drama. I appreciate genuine friendships, so please do not waste my time if you have no intention of communicating consistently.
 DNI if you are: racist, homophobic, Islamophobic, Transphobic, misogynistic/sexist, proship/darkship, abusive, a troll/ragebaiter, roleplayer, AI “artist,” or someone who seeks unnecessary drama.
 <p align="center">
-*ੈ.✩‧₊˚༺☆༻˚₊‧✩*.ੈ*
+*ੈ.✩‧₊˚༺☆༻˚₊‧✩.ੈ*
 
 <p align="center">
 I appreciate even the smallest gestures, so i never underestimate a simple greeting. I enjoy when people open up to me, and I’m always happy to spend time together, whether we talk or simply sit together. If I ever need some time alone, please don’t take it personally, I could just move on without telling you anything.
