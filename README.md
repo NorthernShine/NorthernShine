@@ -18,7 +18,7 @@ I'm friendly, so if you want to know me better idm, I swear I'm sweet :D
 
 <p align="center"> 
 Please respect my comfort and personal boundaries. Do not copy my skins, involve me in conflicts, pressure me to take sides, or engage in unnecessary arguments or drama. I appreciate genuine friendships, so please do not waste my time if you have no intention of communicating consistently.
-DNI if you are: racist, homophobic, Islamophobic, Transphobic, misogynistic/sexist, proship/darkship, abusive, a troll/ragebaiter, roleplayer, AI “artist,” or someone who seeks unnecessary drama.
+DNI if you are: Racist, Homophobic, Islamophobic, Transphobic, Misogynistic/Sexist, Proship/Darkship, Abusive, a Troll/Ragebaiter, Roleplayer, AI “artist,” or someone who seeks unnecessary Drama.
 <p align="center">
 *ੈ.✩‧₊˚༺☆༻˚₊‧✩.ੈ*
 
