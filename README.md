@@ -40,5 +40,5 @@ I appreciate even the smallest gestures, so i never underestimate a simple greet
 <img src="https://file.garden/akznOd94TlocQojJ/Dakota%20baloons.png"height="200">
 
 <p align="center">
-made with help of my best friend :D <a href="https://github.com/AshesOfHerHalo">@AshesOfHerHalo</a>
+made with help of my best friend, plus gif :D <a href="https://github.com/AshesOfHerHalo">@AshesOfHerHalo</a>
   
