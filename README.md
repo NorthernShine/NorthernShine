@@ -4,9 +4,6 @@
  <p align="center">
 <img src="https://file.garden/akznOd94TlocQojJ/aurorapatpat.gif">
   
-<p align="center">
-  <a href="https://github.com/AshesOfHerHalo">@AshesOfHerHalo</a>
-</p>
 
 <p align="center">
  Hello! I'm Aurora, I'm currently 14 years old, my birthday is on January 2nd - I usually prefer to interact with people my own age group. 
