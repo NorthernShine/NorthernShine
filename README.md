@@ -5,6 +5,7 @@
 <img src="https://file.garden/akznOd94TlocQojJ/aurorapatpat.gif">
   
 
+
 <p align="center">
  Hello! I'm Aurora, I'm currently 14 years old, my birthday is on January 2nd - I usually prefer to interact with people my own age group. 
 I've been training for snowboarding for 4 years, and I love listening to music. 
